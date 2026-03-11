@@ -1,1 +1,0 @@
-that is a portfolio pproject for basic
